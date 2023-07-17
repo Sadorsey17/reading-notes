@@ -1,10 +1,7 @@
 # READING NOTES
 *Notes for CodeX*
 
-
-![![Snapchat-1859661765](https://github.com/Sadorsey17/reading-notes/assets/139644142/dcb00db6-114c-421b-ad99-515a8def6fc1)
-
-
+[![Snapchat-1859661765](https://github.com/Sadorsey17/reading-notes/assets/139644142/dcb00db6-114c-421b-ad99-515a8def6fc1)
 
 Hello! My name is Shenèa Dorsey and I'm beyond thrilled to be a part of this program. I've always preferred to work in creative fields such as the entertainment industry or event planning, but I've been keen on the tech world for a while now. I'm so excited to learn a new skill and start a new chapter in my life. What I'm looking forward to the most from this opportunity is learning how to mix my passion for creating experiences and my new technical knowledge to open my world to new job opportunities. 
 
