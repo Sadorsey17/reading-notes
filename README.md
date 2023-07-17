@@ -2,7 +2,7 @@
 *Notes for CodeX*
 
 
-![![NewsPhoto](https://github.com/Sadorsey17/reading-notes/assets/139644142/265fce08-ee87-41b4-9071-d562a71592e4)]
+![![Snapchat-1859661765](https://github.com/Sadorsey17/reading-notes/assets/139644142/dcb00db6-114c-421b-ad99-515a8def6fc1)
 
 
 
